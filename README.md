@@ -1,1 +1,1 @@
-https://ANYAHIMURA.github.io/rsschool-cv/
+https://ANYAHIMURA.github.io/rsschool-cv/cv
